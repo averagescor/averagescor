@@ -6,4 +6,4 @@ THE kris of pt!
 awards ive currently won: 
 
 <img width="323" height="36" alt="image" src="https://github.com/user-attachments/assets/be59a50f-fa63-4968-b23b-cd740ad0ab50" />
-@ponychievments
+
