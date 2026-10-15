@@ -3,8 +3,9 @@
 
 THE kris of pt!
 
-awards ive currently won: 
 
+<details>
+<summary>pt titles!</summary>
 <img width="323" height="36" alt="image" src="https://github.com/user-attachments/assets/be59a50f-fa63-4968-b23b-cd740ad0ab50" />
 <a href="https://github.com/ponychievements" target="_blank">@ponychievements</a><br/>
 <br/>
@@ -13,4 +14,4 @@ awards ive currently won:
 <br/>
 <img width="289" height="38" alt="Screenshot (466)" src="https://github.com/user-attachments/assets/a8b13146-e292-4abb-aaae-27824579bc97" />
 <a href="https://github.com/pt-fashion" target="_blank">@pt-fashion</a><br/>
-
+</details>
