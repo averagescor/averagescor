@@ -1,7 +1,8 @@
 ### hello!!! i'm scor, AVERAGESCOR! before i say anything, take a look at my pronouns.cc, it tells you alot of info about me! yeah i think that's about it actually
-<img width="220" height="218" alt="deltarune-kris-deltarune" src="https://github.com/user-attachments/assets/6f96ab19-a805-431d-84f5-826552c191fd" />
+<img width="200" height="200" alt="Proud_to_be_expendable" src="https://github.com/user-attachments/assets/f4522c70-adc2-4ed9-b82c-ecd39d96e9d6" />
 
-THE kris of pt!
+
+kris of pt ! (trying to change to expendable of pt) 👀👀
 
 
 <details>
