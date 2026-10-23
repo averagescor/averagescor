@@ -1,5 +1,5 @@
 ### hello!!! i'm scor, AVERAGESCOR! before i say anything, take a look at my pronouns.cc, it tells you alot of info about me! yeah i think that's about it actually
-<img width="200" height="200" alt="Proud_to_be_expendable" src="https://github.com/user-attachments/assets/f4522c70-adc2-4ed9-b82c-ecd39d96e9d6" />
+<img width="500" height="500" alt="14120714_7292e" src="https://github.com/user-attachments/assets/fee115c0-15a8-4b76-ab6a-d28e46eb04e9" />
 
 
 expendable of pt !!!!!!
