@@ -1,5 +1,4 @@
-###<img width="150" height="20" alt="blinkiesCafe-bO" src="https://github.com/user-attachments/assets/8a99ba95-3ee2-4368-9274-57520539a6d5" />
-
+### <img width="150" height="20" alt="blinkiesCafe-bO" src="https://github.com/user-attachments/assets/8a99ba95-3ee2-4368-9274-57520539a6d5" />
 hello!!! i'm scor, AVERAGESCOR! before i say anything, take a look at my pronouns.cc, it tells you alot of info about me! yeah i think that's about it actually
 <img width="500" height="500" alt="14120714_7292e" src="https://github.com/user-attachments/assets/fee115c0-15a8-4b76-ab6a-d28e46eb04e9" />
 
