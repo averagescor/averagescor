@@ -4,7 +4,11 @@
 
 kris of pt ! (trying to change to expendable of pt) 👀👀
 
-
+<details>
+<summary>expendable heavykin design!!!!!</summary>
+<img width="1536" height="2048" alt="image" src="https://github.com/user-attachments/assets/1e4c29db-4fbb-4980-92aa-2f6547474f4b" />
+</details>
+<br/>
 <details>
 <summary>kris pt titles!</summary>
 <img width="323" height="36" alt="image" src="https://github.com/user-attachments/assets/be59a50f-fa63-4968-b23b-cd740ad0ab50" />
